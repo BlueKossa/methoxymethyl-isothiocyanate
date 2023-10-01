@@ -1,0 +1,2 @@
+# Methoxymethyl Isothiocyanate
+Methyl isothiocyanate is the organosulfur compound with the formula CH₃N=C=S. This low melting colorless solid is a powerful lachrymator. As a precursor to a variety of valuable bioactive compounds, it is the most important organic isothiocyanate in industry.
